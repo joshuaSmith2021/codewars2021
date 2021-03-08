@@ -4,6 +4,7 @@ Whitney High School
 Keyboard Warriors
 
 Roseville Advanced Division, First Place
+
 ---
 Jaden Peterson
 
